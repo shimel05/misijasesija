@@ -1,2 +1,0 @@
-# misijasesija
-Bandau isvengt sesijos
